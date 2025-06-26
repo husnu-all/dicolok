@@ -10815,22 +10815,22 @@
 					alt="SLOT777">
 				Promo
 			</a>
-			<a href="sigacor.vip/hsnvvip" rel="nofollow noopener" target="_blank">
+			<a href="https://sigacor.vip/hsnvvip" rel="nofollow noopener" target="_blank">
 				<img layout="intrinsic" height="20px" width="20px"
-					src="https://kilat.digital/images/2024/11/02/04f2d650deac38da13f1bd858e8cbb4f.png"
+					src="https://mymaulfolder.me/batmantoto/login.png"
 					alt="SLOT777">
 				Login
 			</a>
-			<a href="sigacor.vip/hsnvvip" rel="nofollow noopener" target="_blank" class="tada">
+			<a href="https://sigacor.vip/hsnvvip" rel="nofollow noopener" target="_blank" class="tada">
 				<img layout="intrinsic" height="20px" width="20px"
-					src="https://kilat.digital/images/2024/11/02/7ae60697516816aa61fcc6188b8a8d03.png"
+					src="https://mymaulfolder.me/batmantoto/daftar.png"
 					alt="SLOT777">
 				Daftar
 			</a>
-			<a href="sigacor.vip/hsnvvip" rel="nofollow noopener" target="_blank"
+			<a href="https://sigacor.vip/hsnvvip" rel="nofollow noopener" target="_blank"
 				class="js_live_chat_link live-chat-link">
 				<img class="live-chat-icon" layout="intrinsic" height="20px" width="20px"
-					src="https://kilat.digital/images/2024/11/02/5abf2e333c0541f4e54faa1f2e7c4dd7.png"
+					src="https://mymaulfolder.me/batmantoto/livechat.png"
 					alt="SLOT777">
 				Live Chat
 			</a>
